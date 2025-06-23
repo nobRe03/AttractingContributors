@@ -17,4 +17,12 @@
 - Gintama
 - Jujutsu Kaisen
 - Bleach
-- 
+- Is Order a Rabbit?
+- Kin-iro mosaic
+- Tayutama: Kiss on my Deity
+- Bocchi the Rock!
+- AKB0048
+- Otome wa Boku ni Koishiteru
+- Gonna be the Twin-Tail!!
+- Blend・S
+- Slow Start
