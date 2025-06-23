@@ -1,4 +1,5 @@
 # Please indicate your favourite places to eat near NAIST.
+# Please indicate your Sweets places near NAIST, or Osaka.
 
 # List of place
 - mamemame saisai
