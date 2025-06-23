@@ -11,3 +11,10 @@
 - 5 Centimeters Per Second
 - ARIA The ORIGINATION
 - NARUTO
+- One Punch Man
+- Mob Psycho 100
+- My Hero Academia
+- Gintama
+- Jujutsu Kaisen
+- Bleach
+- 
