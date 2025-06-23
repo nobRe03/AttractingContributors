@@ -9,4 +9,5 @@
 - Boruto
 - Hunter x Hunter
 - 5 Centimeters Per Second
+- ARIA The ORIGINATION
 - NARUTO
