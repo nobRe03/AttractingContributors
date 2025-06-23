@@ -27,3 +27,4 @@
 - Blend・S
 - Slow Start
 - Horimiya
+- ReLIFE
