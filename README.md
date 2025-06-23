@@ -3,3 +3,4 @@
 # List of place
 - mamemame saisai
 - Gusto
+- Komeda Coffee(Ryosei Kuge:2511092)
