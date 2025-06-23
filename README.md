@@ -26,3 +26,4 @@
 - Gonna be the Twin-Tail!!
 - Blend・S
 - Slow Start
+- Horimiya
